@@ -6,6 +6,7 @@ Max40
 Max40
 Max40
 Max40
+Max40
 Kai30
 Kai30
 Kai30
